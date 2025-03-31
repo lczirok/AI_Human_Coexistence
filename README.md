@@ -1,1 +1,1 @@
-In the other day I was thinking about our future with AI. I was also discussing this topic with chatgpt, shared my standpoint with one of the possibilites and "we" came to a conclusion to why not write a manifesto to share the ideas, maybe this would be also interesting to others too. 
+The other day, I was thinking about our future with AI. I discussed this topic with ChatGPT, shared my perspective on one of the possible futures, and "we" came to the conclusion: why not write a manifesto to share these ideas? Perhaps others would also find them thought-provoking.
